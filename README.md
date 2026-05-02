@@ -4,4 +4,5 @@ phone number to discord account
 
 Selling phone to discord. Dm me at telegram: @xdanastasia 
 
-<img width="1166" height="75" alt="image" src="https://github.com/user-attachments/assets/ef510fe0-1673-4af1-811b-1641fd29591f" />
+
+<img width="1182" height="97" alt="image" src="https://github.com/user-attachments/assets/efb4b9ef-b692-4e10-870d-d066f0f36b01" />
